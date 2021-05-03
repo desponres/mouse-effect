@@ -1,1 +1,1 @@
-# Amazing Mouse Effect :)
+# Amazing Mouse Cursor Effect
